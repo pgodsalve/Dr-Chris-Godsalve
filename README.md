@@ -61,7 +61,7 @@ Chris’ illness made daily life difficult, despite this he continued to apply h
 
 In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with a computer graphics project and had more he wanted to achieve.
 
-Chris sadly passed away on 29th March 2020 after battling a short illness. He will be missed terribly by family and friends.
+Chris sadly passed away on 29th March 2020 during the coronavirus pandemic, after a short battle with the diease. He will be missed terribly by family and friends.
 
 
 ## Relevant charities
