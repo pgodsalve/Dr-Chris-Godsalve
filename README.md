@@ -1,4 +1,5 @@
-# <center> Dr Christopher Godsalve 4.8.59 - 29.3.20
+# Dr Christopher Godsalve 
+## 4.8.59 - 29.3.20
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49737905593/in/dateposted-public/" title="IMG_4502 (1)"><img src="https://live.staticflickr.com/65535/49737905593_980f2b629f_b.jpg" width="350" height="500" alt="IMG_4502 (1)"></a>
 
 
@@ -50,6 +51,8 @@ Chris’ father Tom sadly died very suddenly of liver cancer in 1977, having bee
 Chris went off to university at Heriot-Watt university in Edinburgh to study physics. He studied to PhD level over 7 years. Chris worked late into the night on his PhD research project at the university and remembered picking his way through pitch black corridors long after the lights in the building had been switched off.
 
 Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and in a bank. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and went to see gigs of some iconic musicians. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
+
+#### Marriage and professional life
 
 In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh until 1992 then moved to Reading when Chris was offered a job a Reading University as a scientist in the Environmental Systems Science Centre (ESSC).
 
