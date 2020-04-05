@@ -1,8 +1,27 @@
 # Dr. C Godsalve Tribute Page
-<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49737905593/in/dateposted-public/" title="IMG_4502 (1)"><img src="https://live.staticflickr.com/65535/49737905593_980f2b629f_b.jpg" width="643" height="960" alt="IMG_4502 (1)"></a>
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49737905593/in/dateposted-public/" title="IMG_4502 (1)"><img src="https://live.staticflickr.com/65535/49737905593_980f2b629f_b.jpg" width="350" height="540" alt="IMG_4502 (1)"></a>
+
+
+Photo credit: John Devaney
 
 This page is indended to celebrate the life of Dr Christopher Godsalve. He will be remembered as a loving husband to Beatrice, father to Philippa, and as a physicist who was devoted to his work. Chris’ fields of research included heat conduction, carrier diffusion, nonlinear optics, radiative transfer, spectroscopy, satellite orbits, and remote sensing. In later life Chris suffered from chronic illness, but continued with many self-directed projects in maths, physics and computing.
 
+## Chris' pages
+
+Main website <a href="https://seagods.bitbucket.io/"> 
+ 
+Github code page <a href="https://seagods.github.io/">
+ 
+Researchgate publications <a href="https://www.researchgate.net/profile/Chris_Godsalve">
+ 
+Video tutorial series 1 - Building Programs on Microsoft Windows <a href="https://www.youtube.com/playlist?list=PLstgcQGSENrrlMnL19U0vi4rChN5mJFCF">
+ 
+Video tutorial series 2 - Scientific Computing on Microsoft Windows <a href="https://www.youtube.com/playlist?list=PLstgcQGSENroAfXYhKG0cQNgrM4Z6ACQc">
+ 
+Tribute playlist <a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R"> 
+
+
+## Biography
 
 #### Early life
 
@@ -41,7 +60,7 @@ In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling sho
 Chris sadly passed away on 29th March 2020 after battling a short illness. He will be missed terribly by family and friends.
 
  
-#### Thoughts by daughter, Philippa
+## Thoughts by daughter, Philippa
 
 Dad’s life was often afflicted with illness and hardship, but he always remained incredibly positive and didn’t dwell on his suffering. He was admirable in his stoicism and had huge empathy for others who were unwell.
 
