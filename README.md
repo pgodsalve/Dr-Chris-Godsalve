@@ -18,7 +18,7 @@ This page is indended to celebrate the life of Dr Christopher Godsalve. He will 
  
 <a href="https://www.youtube.com/playlist?list=PLstgcQGSENroAfXYhKG0cQNgrM4Z6ACQc">Video tutorial series 2 - Scientific Computing on Microsoft Windows
  
-<a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R">Tribute playlist
+<a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R">Music playlist
 
 ## Relevant charities
 
