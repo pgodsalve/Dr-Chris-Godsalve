@@ -48,7 +48,7 @@ Chris’ father Tom sadly died very suddenly of liver cancer in 1977, having bee
 
 #### University and academic life
 
-Chris went off to university at Heriot-Watt university in Edinburgh to study physics. He studied to PhD level over 7 years. Chris worked late into the night on his PhD research project at the university and remembered picking his way through pitch black corridors long after the lights in the building had been switched off.
+Chris went off to university at Heriot-Watt in Edinburgh to study physics. He studied to PhD level over a period of 7 years. Chris worked late into the night on his PhD research project on the university grounds and remembered picking his way through pitch black corridors long after the lights in the building had been switched off. He and his peers were conceptualising and researching a proposed optical computer which was never built, but possibly had similar potential to conceptualised quantum computers today.
 
 Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and went to support gigs of some iconic musicians. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
 
