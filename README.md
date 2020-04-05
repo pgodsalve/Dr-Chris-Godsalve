@@ -23,13 +23,6 @@ This is a tribute page, intended to celebrate and document the life of Dr Christ
  
 <a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R">Music playlist
 
-## Relevant charities
-
-<a href="https://www.blf.org.uk/">British Lung Foundation 
- 
-<a href="https://www.crohnsandcolitis.org.uk">Crohn's & Colitis UK 
-
-
 ## Biography
 
 #### Early life
@@ -69,6 +62,13 @@ Chris’ illness made daily life difficult, despite this he continued to apply h
 In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with a computer graphics project and had more he wanted to achieve.
 
 Chris sadly passed away on 29th March 2020 after battling a short illness. He will be missed terribly by family and friends.
+
+
+## Relevant charities
+
+<a href="https://www.blf.org.uk/">British Lung Foundation 
+ 
+<a href="https://www.crohnsandcolitis.org.uk">Crohn's & Colitis UK 
 
  
 ## Thoughts by daughter, Philippa
