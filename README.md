@@ -6,7 +6,9 @@
 
 Photo credit: John Devaney.
 
-This is a tribute page, intended to celebrate and document the life of Dr Christopher Godsalve, and to bring together some of his pages and publications. He will be remembered as a loving husband to Beatrice, father to Philippa, and as a physicist who was devoted to his work. Chris’ fields of research included heat conduction, carrier diffusion, nonlinear optics, radiative transfer, spectroscopy, satellite orbits, and remote sensing. In later life Chris suffered from chronic illness, but continued with many self-directed projects in maths, physics and computing.
+This is a tribute page, intended to celebrate and document the life of Dr Christopher Godsalve, and to bring together some of his pages and publications. He will be remembered as a loving husband to Beatrice, father to Philippa, and as a physicist who was devoted to his work. 
+
+Chris’ fields of research included heat conduction, carrier diffusion, nonlinear optics, radiative transfer, spectroscopy, satellite orbits, and remote sensing. In later life Chris suffered from chronic illness, but continued with many self-directed projects in maths, physics and computing.
 
 
 ## Chris' pages
