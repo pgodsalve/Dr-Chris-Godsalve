@@ -1,5 +1,5 @@
 # Dr. C Godsalve Tribute Page
-<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49737905593/in/dateposted-public/" title="IMG_4502 (1)"><img src="https://live.staticflickr.com/65535/49737905593_980f2b629f_b.jpg" width="350" height="540" alt="IMG_4502 (1)"></a>
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49737905593/in/dateposted-public/" title="IMG_4502 (1)"><img src="https://live.staticflickr.com/65535/49737905593_980f2b629f_b.jpg" width="350" height="500" alt="IMG_4502 (1)"></a>
 
 
 Photo credit: John Devaney
@@ -8,23 +8,24 @@ This page is indended to celebrate the life of Dr Christopher Godsalve. He will 
 
 ## Chris' pages
 
-Main website 
-<a href="https://seagods.bitbucket.io/"> 
+<a href="https://seagods.bitbucket.io/">Main website
+
+<a href="https://seagods.github.io/">Github code page
  
-Github code page 
-<a href="https://seagods.github.io/">
+Researchgate publications<a href="https://www.researchgate.net/profile/Chris_Godsalve">
  
-Researchgate publications 
-<a href="https://www.researchgate.net/profile/Chris_Godsalve">
+<a href="https://www.youtube.com/playlist?list=PLstgcQGSENrrlMnL19U0vi4rChN5mJFCF">Video tutorial series 1 - Building Programs on Microsoft Windows
  
-Video tutorial series 1 - Building Programs on Microsoft Windows 
-<a href="https://www.youtube.com/playlist?list=PLstgcQGSENrrlMnL19U0vi4rChN5mJFCF">
+<a href="https://www.youtube.com/playlist?list=PLstgcQGSENroAfXYhKG0cQNgrM4Z6ACQc">Video tutorial series 2 - Scientific Computing on Microsoft Windows
  
-Video tutorial series 2 - Scientific Computing on Microsoft Windows 
-<a href="https://www.youtube.com/playlist?list=PLstgcQGSENroAfXYhKG0cQNgrM4Z6ACQc">
- 
-Tribute playlist 
-<a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R"> 
+ <a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R"> 
+Tribute playlist
+
+## Relevant charities
+
+<a href="https://www.blf.org.uk/">British Lung Foundation 
+
+<a href="https://www.crohnsandcolitis.org.uk">Crohn's & Colitis UK 
 
 
 ## Biography
