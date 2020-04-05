@@ -2,10 +2,10 @@
 ## 4.8.59 - 29.3.20
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49737905593/in/dateposted-public/" title="IMG_4502 (1)"><img src="https://live.staticflickr.com/65535/49737905593_980f2b629f_b.jpg" width="350" height="500" alt="IMG_4502 (1)"></a>
 
-
-Photo credit: John Devaney</center>
+Photo credit: John Devaney.
 
 This page is intended to celebrate and document the life of Dr Christopher Godsalve, and to bring together some of his pages and publications. He will be remembered as a loving husband to Beatrice, father to Philippa, and as a physicist who was devoted to his work. Chris’ fields of research included heat conduction, carrier diffusion, nonlinear optics, radiative transfer, spectroscopy, satellite orbits, and remote sensing. In later life Chris suffered from chronic illness, but continued with many self-directed projects in maths, physics and computing.
+
 
 ## Chris' pages
 
