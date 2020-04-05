@@ -53,7 +53,7 @@ Throughout his studies Chris worked hard to support himself financially and had 
 
 In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh until 1992 then moved to Reading when Chris was offered a job a Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology.
 
-Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again. His disease never went into remission dispite large doses of steroids and immunomodulating drugs.
+Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again. His disease never went into remission despite large doses of steroids and immunomodulating drugs.
 
 #### Later years
 
