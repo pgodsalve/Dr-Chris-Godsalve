@@ -9,22 +9,15 @@ This page is indended to celebrate the life of Dr Christopher Godsalve. He will 
 ## Chris' pages
 
 <a href="https://seagods.bitbucket.io/">Main website
-
 <a href="https://seagods.github.io/">Github code page
- 
-Researchgate publications<a href="https://www.researchgate.net/profile/Chris_Godsalve">
- 
+<a href="https://www.researchgate.net/profile/Chris_Godsalve">Researchgate publications
 <a href="https://www.youtube.com/playlist?list=PLstgcQGSENrrlMnL19U0vi4rChN5mJFCF">Video tutorial series 1 - Building Programs on Microsoft Windows
- 
 <a href="https://www.youtube.com/playlist?list=PLstgcQGSENroAfXYhKG0cQNgrM4Z6ACQc">Video tutorial series 2 - Scientific Computing on Microsoft Windows
- 
- <a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R"> 
-Tribute playlist
+<a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R">Tribute playlist
 
 ## Relevant charities
 
 <a href="https://www.blf.org.uk/">British Lung Foundation 
-
 <a href="https://www.crohnsandcolitis.org.uk">Crohn's & Colitis UK 
 
 
