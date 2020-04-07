@@ -80,9 +80,11 @@ Devoted to his work at the ESSC, Chris researched weather systems, cloud physics
 
 #### Later years
 
-At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes.
+At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and kept the garden. During these years Chris sometimes suffered preiods of depression and alcoholism. The family often visited Lisa and Chris set her up with and showed her how to use a computer. When Lisa sadly passed away in 2012 he spent time documenting her life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.
 
-Chris’ illness made daily life difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
+Chris’ illness made daily life extremely difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
+
+
 
 In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with a computer graphics project and had more he wanted to achieve.
 
