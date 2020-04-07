@@ -88,14 +88,16 @@ Unfortunately, towards the end of his professional life, Chris’ work was mired
 At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and kept the garden. During these years Chris sometimes suffered periods of depression and alcoholism. The family often visited Lisa and Vic, and later Chris set Lisa up with and showed her how to use a computer. Vic sadly passed away in 2007, and in 2012. Chris spent much time documenting her life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.</a> 
  
  <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746585811/in/dateposted-public/" title="IMG-4738"><img src="https://live.staticflickr.com/65535/49746585811_b388d64a4f_m.jpg" width="180" height="240" alt="IMG-4738"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746604861/in/dateposted-public/" title="IMG-4739"><img src="https://live.staticflickr.com/65535/49746604861_5df3ac02e5_m.jpg" width="240" height="156" alt="IMG-4739"></a>
+ 
+Left to right: Chris with Lisa, Chris with Vic
 
 Chris’ illness made daily life extremely difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
 
-<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745943338/in/dateposted-public/" title="IMG_4736"><img src="https://live.staticflickr.com/65535/49745943338_0d4725a4a6_m.jpg" width="122" height="240" alt="IMG_4736"></a>
-
 In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with migrating a computer graphics project to Microsoft Windows and had more he wanted to achieve. 
 
-<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815192/in/dateposted-public/" title="IMG_4735"><img src="https://live.staticflickr.com/65535/49746815192_ef9960089b_n.jpg" width="258" height="320" alt="IMG_4735"></a>
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815192/in/dateposted-public/" title="IMG_4735"><img src="https://live.staticflickr.com/65535/49746815192_ef9960089b_n.jpg" width="258" height="320" alt="IMG_4735"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745943338/in/dateposted-public/" title="IMG_4736"><img src="https://live.staticflickr.com/65535/49745943338_0d4725a4a6_m.jpg" width="122" height="240" alt="IMG_4736"></a>
+
+Left to right: Making the most of trips to the Royal Brompton lung disease specialist hospital - Philippa and Chris in little Venice, Chris at the hospital accomodation
 
 In later years his brother Bob was a huge practical and moral support for Chris and Beatrice, and always helped with taking Chris to his numerous blood tests and specialist appointments, and visiting and bringing him home from increasingly frequent stays in hospital. Chris sadly passed away on 29th March 2020 during the coronavirus pandemic after a short battle with the disease. He will be missed terribly by family and friends.
 
