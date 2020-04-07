@@ -61,11 +61,15 @@ Throughout his studies Chris worked hard to support himself financially and had 
 
 #### Marriage, family and professional life
 
-In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh until 1992 then moved to Reading when Chris was offered a job a Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology.
+In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice Campbell. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh until 1992 then moved to Reading when Chris was offered a job a Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology. In early years of marriage Chris enjoyed trips back up to Scotland with the family and had fond memories of their stays at inlaws David and Philippa Campbell's country house 'Old Costerton'
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605248/in/dateposted-public/" title="Wedding1"><img src="https://live.staticflickr.com/65535/49745605248_ffdaa6d066_n.jpg" width="320" height="240" alt="Wedding1"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746147066/in/dateposted-public/" title="Wedding5"><img src="https://live.staticflickr.com/65535/49746147066_1e7cdc1eeb_n.jpg" width="240" height="320" alt="Wedding5"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745607693/in/dateposted-public/" title="Family5"><img src="https://live.staticflickr.com/65535/49745607693_4a97c2694d_n.jpg" width="320" height="240" alt="Family5"></a>
 
-Left to right: Beatrice and Chris' Wedding, Beatrice and Chris with newborn Philippa at Costerton
+Left to right: Beatrice and Chris' Wedding, Beatrice and Chris with newborn Philippa at Old Costerton
+
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474537/in/dateposted-public/" title="Wedding2"><img src="https://live.staticflickr.com/65535/49746474537_fccb41ce07_n.jpg" width="320" height="240" alt="Wedding2"><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605513/in/dateposted-public/" title="Family7"><img src="https://live.staticflickr.com/65535/49745605513_8081bdcdd4_n.jpg" width="240" height="320" alt="Family7"></a>
+ 
+Left to right: David & Philippa Campbell, Beatrice, Chris and Al, family scene at Old Costerton
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606283/in/dateposted-public/" title="Family4"><img src="https://live.staticflickr.com/65535/49745606283_af71d04ec8_n.jpg" width="240" height="180" alt="Family4"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606218/in/dateposted-public/" title="John, Beatrice, Lisa &amp; Vic"><img src="https://live.staticflickr.com/65535/49745606218_44ea84c299_n.jpg" width="240" height="180" alt="John, Beatrice, Lisa &amp; Vic"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746146406/in/dateposted-public/" title="John Morrison"><img src="https://live.staticflickr.com/65535/49746146406_f5daf378ab_n.jpg" width="240" height="180" alt="John Morrison"></a>
 
@@ -80,13 +84,13 @@ Devoted to his work at the ESSC, Chris researched weather systems, cloud physics
 
 #### Later years
 
-At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and kept the garden. During these years Chris sometimes suffered preiods of depression and alcoholism. The family often visited Lisa and Vic, and later Chris set Lisa up with and showed her how to use a computer. Vic sadly passed away in 2007, and in 2012. Chris spent much time documenting her life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.</a>
+At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and kept the garden. During these years Chris sometimes suffered preiods of depression and alcoholism. The family often visited Lisa and Vic, and later Chris set Lisa up with and showed her how to use a computer. Vic sadly passed away in 2007, and in 2012. Chris spent much time documenting her life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.</a> 
  
  <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746585811/in/dateposted-public/" title="IMG-4738"><img src="https://live.staticflickr.com/65535/49746585811_b388d64a4f_m.jpg" width="180" height="240" alt="IMG-4738"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746604861/in/dateposted-public/" title="IMG-4739"><img src="https://live.staticflickr.com/65535/49746604861_5df3ac02e5_m.jpg" width="240" height="156" alt="IMG-4739"></a>
 
 Chris’ illness made daily life extremely difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
 
-
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745943338/in/dateposted-public/" title="IMG_4736"><img src="https://live.staticflickr.com/65535/49745943338_0d4725a4a6_m.jpg" width="122" height="240" alt="IMG_4736"></a>
 
 In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with migrating a computer graphics project to Microsoft Windows and had more he wanted to achieve. 
 
@@ -94,6 +98,9 @@ In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling sho
 
 In later years his brother Bob was a huge practical and moral support for Chris and Beatrice, and always helped with taking Chris to his numerous blood tests and specialist appointments, and visiting and bringing him home from increasingly frequent stays in hospital. Chris sadly passed away on 29th March 2020 during the coronavirus pandemic after a short battle with the disease. He will be missed terribly by family and friends.
 
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746482606/in/dateposted-public/" title="IMG_3717"><img src="https://live.staticflickr.com/65535/49746482606_9a0e1c02f7_n.jpg" width="240" height="320" alt="IMG_3717"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815087/in/dateposted-public/" title="IMG_3709"><img src="https://live.staticflickr.com/65535/49746815087_c0f027c41f_n.jpg" width="320" height="240" alt="IMG_3709"></a>
+
+Left to right: Philippa & Chris, Beatrice, Chris & Bob Christmas day 2020
 
 ## Relevant charities
 
