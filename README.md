@@ -25,6 +25,7 @@ Chris’ fields of research included heat conduction, carrier diffusion, nonline
  
 <a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R">Music playlist
 
+
 ## Biography
 
 #### Early life
@@ -39,6 +40,7 @@ Tom left the army abruptly for a low paid job, and the family moved to a tiny ca
 
 Left to right: Lisa, Tom, Lisa & Chris
 
+
 #### School years
 
 Things were soon on the up after Tom became a security guard and Lisa started work in a factory. Eventually they were able to afford a house in Southcote, Reading, where Chris went to school. Holidays included trips to stay with Lisa’s family in the Rhineland, Germany where Chris formed a close bond and admiration for his Grandpa ‘Opa Fritz’ who was a communist, a snappy dresser and appreciated Chris’ intelligence and sensitive nature. Chris attended Blessed Hugh Farringdon school, here he met lifelong friend John Devaney. They shared a love of music.
@@ -47,9 +49,11 @@ Things were soon on the up after Tom became a security guard and Lisa started wo
 
 Left to right: Schoolboy Chris, Germany - Tante Irme, Chris, Tante Lora, Lisa
 
+
 There were some formative events which shaped Chris’ huge sense of social justice and political awareness. Possibly the most powerful of these were his father Tom suffering a debilitating stroke in 1971 but then being declared ‘fit for work’ and social security benefits stopped. Chris became very aware of what he saw as the media demonisation of people accessing support from the government. Chris grew up around men who had been hardened by war and had enormous respect for them but considered himself a pacifist. His mother Lisa amusedly remembered switching on the TV one evening and spotting Chris in a huge crowd on a peace protest in London. She had just started to worry as he hadn’t come home for tea and hadn’t given an inkling where he was going.
 
 Chris’ father Tom sadly died very suddenly of liver cancer in 1977, having been diagnosed just 4 weeks earlier. Chris was 18 and his father’s death impacted him greatly. This was a dark time; Chris became unwell with schizoaffective disorder and spent some time in Fairmile psychiatric hospital. Lisa married Victor Cripps in 1979 after meeting him through the British Legion and acting as a translator with the German branch. Chris gained a brother Bob, and nephew Steve. Vic was instrumental in supporting Chris in his recovery and encouraging him to pursue his studies in maths and physics.
+
 
 #### University and academic life
 
@@ -59,6 +63,7 @@ Chris went off to university at Heriot-Watt in Edinburgh to study physics. He st
 
 Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and went to support gigs of some iconic musicians. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
 
+
 #### Marriage, family and professional life
 
 In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice Campbell. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh in their Gorgie flat and kept up with good friends. In 1992 they moved to Reading when Chris was offered a job at Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology. Before Chris became too unwell to travel the family enjoyed trips up to Scotland, and all had very fond memories of their stays at inlaws David and Philippa Campbell's country house 'Old Costerton'. 
@@ -67,13 +72,16 @@ In the late 1980’s Chris was volunteering his time at the local council to hel
 
 Left to right: Beatrice and Chris' Wedding, Beatrice and Chris with newborn Philippa at Old Costerton
 
+
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474537/in/dateposted-public/" title="Wedding2"><img src="https://live.staticflickr.com/65535/49746474537_fccb41ce07_n.jpg" width="320" height="240" alt="Wedding2"><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605513/in/dateposted-public/" title="Family7"><img src="https://live.staticflickr.com/65535/49745605513_8081bdcdd4_n.jpg" width="240" height="320" alt="Family7"></a>
  
 Left to right: David & Philippa Campbell, Beatrice, Chris and Al, family scene at Old Costerton
 
+
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606283/in/dateposted-public/" title="Family4"><img src="https://live.staticflickr.com/65535/49745606283_af71d04ec8_n.jpg" width="250" height="190" alt="Family4"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606218/in/dateposted-public/" title="John, Beatrice, Lisa &amp; Vic"><img src="https://live.staticflickr.com/65535/49745606218_44ea84c299_n.jpg" width="250" height="190" alt="John, Beatrice, Lisa &amp; Vic"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746146406/in/dateposted-public/" title="John Morrison"><img src="https://live.staticflickr.com/65535/49746146406_f5daf378ab_n.jpg" width="250" height="190" alt="John Morrison"></a>
 
 Left to right: Times in Gorgie, Edinburgh - The Godsalve family, Beatrice, John Renton, Lisa and Vic, John Morrison with Chris and Philippa
+
 
 Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. He travelled for work, including trips to Utah, USA and later Florence, Italy, where brought along his daughter's favourite teddy 'Charlotte bear' and photographed her taking in all the famous sights, much to Philippa's delight. 
 
@@ -81,29 +89,34 @@ Devoted to his work at the ESSC, Chris researched weather systems, cloud physics
  
 Left to right: The family at Swainstone Rd, Chris and Philippa at local Cintra park, Chris with Charlotte bear
 
+
 Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again after that. His disease never went into remission despite large doses of steroids and immunomodulating drugs which caused him a myriad of further health problems.
+
 
 #### Later years
 
-At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and kept the garden. During these years Chris sometimes suffered periods of depression and alcoholism. The family often visited Lisa and Vic, and later Chris set Lisa up with a computer which gave her much pleasure in later life. Vic sadly passed away in 2007, and Lisa in 2012. Chris spent much time documenting Lisa's life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.</a> 
+At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and maintained the garden. During these years Chris sometimes suffered periods of depression and alcoholism. The family often visited Lisa and Vic, and later Chris set Lisa up with a computer which gave her much pleasure in her last years. Vic sadly passed away in 2007, and Lisa in 2012. Chris spent much time documenting Lisa's life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.</a> 
  
  <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746585811/in/dateposted-public/" title="IMG-4738"><img src="https://live.staticflickr.com/65535/49746585811_b388d64a4f_m.jpg" width="180" height="240" alt="IMG-4738"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746604861/in/dateposted-public/" title="IMG-4739"><img src="https://live.staticflickr.com/65535/49746604861_5df3ac02e5_m.jpg" width="240" height="156" alt="IMG-4739"></a>
  
 Left to right: Chris with Lisa, Chris with Vic
 
+
 Chris’ illness made daily life extremely difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
 
-In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with migrating a computer graphics project to Microsoft Windows and had more he wanted to achieve. 
+In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling increasingly short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with migrating a computer graphics project to Microsoft Windows and had more he wanted to achieve. 
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815192/in/dateposted-public/" title="IMG_4735"><img src="https://live.staticflickr.com/65535/49746815192_ef9960089b_n.jpg" width="258" height="320" alt="IMG_4735"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745943338/in/dateposted-public/" title="IMG_4736"><img src="https://live.staticflickr.com/65535/49745943338_0d4725a4a6_m.jpg" width="122" height="240" alt="IMG_4736"></a>
 
 Left to right: Making the most of trips to the Royal Brompton lung disease specialist hospital - Philippa and Chris in little Venice, Chris at the hospital accomodation
+
 
 In later years his brother Bob was a huge practical and moral support for Chris and Beatrice, and always helped with taking Chris to his numerous blood tests and specialist appointments, and visiting and bringing him home from increasingly frequent stays in hospital. Chris sadly passed away on 29th March 2020 during the coronavirus pandemic after a short battle with the disease. He will be missed terribly by family and friends.
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746482606/in/dateposted-public/" title="IMG_3717"><img src="https://live.staticflickr.com/65535/49746482606_9a0e1c02f7_n.jpg" width="240" height="320" alt="IMG_3717"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815087/in/dateposted-public/" title="IMG_3709"><img src="https://live.staticflickr.com/65535/49746815087_c0f027c41f_n.jpg" width="320" height="240" alt="IMG_3709"></a>
 
 Left to right: Philippa & Chris, Beatrice, Chris & Bob Christmas day 2020
+
 
 ## Relevant charities
 
