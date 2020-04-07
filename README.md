@@ -55,11 +55,15 @@ Chris’ father Tom sadly died very suddenly of liver cancer in 1977, having bee
 
 Chris went off to university at Heriot-Watt in Edinburgh to study physics. He studied to PhD level over a period of 7 years. Chris worked late into the night on his PhD research project on the university grounds and remembered picking his way through pitch black corridors long after the lights in the building had been switched off. He and his peers were conceptualising and researching a proposed optical computer which was never built, but they thought it could possibly have similar potential to conceptualised quantum computers today.
 
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474932/in/dateposted-public/" title="Graduation"><img src="https://live.staticflickr.com/65535/49746474932_950aa4a0c7_n.jpg" width="240" height="320" alt="Graduation"></a>
+
 Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and went to support gigs of some iconic musicians. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
 
 #### Marriage and professional life
 
 In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh until 1992 then moved to Reading when Chris was offered a job a Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology.
+
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474932/in/dateposted-public/" title="Graduation"><img src="https://live.staticflickr.com/65535/49746474932_950aa4a0c7_n.jpg" width="240" height="320" alt="Graduation"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746147066/in/dateposted-public/" title="Wedding5"><img src="https://live.staticflickr.com/65535/49746147066_1e7cdc1eeb_n.jpg" width="240" height="320" alt="Wedding5"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745607693/in/dateposted-public/" title="Family5"><img src="https://live.staticflickr.com/65535/49745607693_4a97c2694d_n.jpg" width="320" height="240" alt="Family5"></a>
 
 Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again. His disease never went into remission despite large doses of steroids and immunomodulating drugs.
 
