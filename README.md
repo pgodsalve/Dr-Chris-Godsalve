@@ -65,6 +65,12 @@ In the late 1980’s Chris was volunteering his time at the local council to hel
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605248/in/dateposted-public/" title="Wedding1"><img src="https://live.staticflickr.com/65535/49745605248_ffdaa6d066_n.jpg" width="320" height="240" alt="Wedding1"></a></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746147066/in/dateposted-public/" title="Wedding5"><img src="https://live.staticflickr.com/65535/49746147066_1e7cdc1eeb_n.jpg" width="240" height="320" alt="Wedding5"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745607693/in/dateposted-public/" title="Family5"><img src="https://live.staticflickr.com/65535/49745607693_4a97c2694d_n.jpg" width="320" height="240" alt="Family5"></a>
 
+Left to right: Beatrice and Chris' Wedding, Beatrice and Chris with newborn Philippa at Costerton
+
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606283/in/dateposted-public/" title="Family4"><img src="https://live.staticflickr.com/65535/49745606283_af71d04ec8_n.jpg" width="320" height="240" alt="Family4"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606218/in/dateposted-public/" title="John, Beatrice, Lisa &amp; Vic"><img src="https://live.staticflickr.com/65535/49745606218_44ea84c299_n.jpg" width="320" height="240" alt="John, Beatrice, Lisa &amp; Vic"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746146406/in/dateposted-public/" title="John Morrison"><img src="https://live.staticflickr.com/65535/49746146406_f5daf378ab_n.jpg" width="320" height="240" alt="John Morrison"></a>
+
+Left to right: Times in Gorgie, Edinburgh - The Godsalve family, Beatrice, John Renton, Lisa and Vic, John Morrison with Chris and Philippa
+
 Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again. His disease never went into remission despite large doses of steroids and immunomodulating drugs.
 
 #### Later years
