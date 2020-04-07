@@ -1,6 +1,6 @@
 # Dr Christopher Godsalve    
 
-## 4.8.59 - 29.3.20
+## 6.8.59 - 29.3.20
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49737905593/in/dateposted-public/" title="IMG_4502 (1)"><img src="https://live.staticflickr.com/65535/49737905593_980f2b629f_b.jpg" width="350" height="500" alt="IMG_4502 (1)"></a>
 
@@ -34,6 +34,8 @@ Chris was born on 4th August 1959 in Kingston upon Hull. His parents were Thomas
 Chris’ father Tom had previously been a staff sergeant in the Royal Berkshire regiment of the British Army, who’s long army career saw him travel across India, Burma, Cyprus and Germany. He later transferred to a role as head chef in the catering corps in the Arborfield camp. Here Chris spent his early years.
 
 Tom left the army abruptly for a low paid job, and the family moved to a tiny caravan. Life in the caravan was hard, they had very little money and the pipes often froze in cold weather preventing access to running water.
+
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745604588/in/dateposted-public/" title="Lieselotte Godsalve (later Cripps)"><img src="https://live.staticflickr.com/65535/49745604588_e4ba250cc0_n.jpg" width="226" height="320" alt="Lieselotte Godsalve (later Cripps)"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746473767/in/dateposted-public/" title="Thomas Godsalve"><img src="https://live.staticflickr.com/65535/49746473767_ecfac7e8a8_n.jpg" width="320" height="318" alt="Thomas Godsalve"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745667428/in/dateposted-public/" title="IMG_4731"><img src="https://live.staticflickr.com/65535/49745667428_184e53d687_n.jpg" width="303" height="320" alt="IMG_4731"></a>
 
 #### School years
 
