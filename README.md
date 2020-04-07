@@ -59,7 +59,7 @@ Chris went off to university at Heriot-Watt in Edinburgh to study physics. He st
 
 Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and went to support gigs of some iconic musicians. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
 
-#### Marriage and professional life
+#### Marriage, family and professional life
 
 In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh until 1992 then moved to Reading when Chris was offered a job a Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology.
 
@@ -71,7 +71,12 @@ Left to right: Beatrice and Chris' Wedding, Beatrice and Chris with newborn Phil
 
 Left to right: Times in Gorgie, Edinburgh - The Godsalve family, Beatrice, John Renton, Lisa and Vic, John Morrison with Chris and Philippa
 
-Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again. His disease never went into remission despite large doses of steroids and immunomodulating drugs.
+Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. He travelled for work, including trips to Utah and later Florence, where he took his daughter's favourite teddy 'Charlotte bear' and photographed her taking in all the famous sights much to Philippa's delight. Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again. His disease never went into remission despite large doses of steroids and immunomodulating drugs.
+
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745604728/in/dateposted-public/" title="Family1"><img src="https://live.staticflickr.com/65535/49745604728_112661837c_n.jpg" width="217" height="320" alt="Family1"><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745607628/in/dateposted-public/" title="Philippa &amp; Chris5"><img src="https://live.staticflickr.com/65535/49745607628_147bb7c9c0_n.jpg" width="240" height="320" alt="Philippa &amp; Chris5"><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605398/in/dateposted-public/" title="Chris &amp; Philippa6"><img src="https://live.staticflickr.com/65535/49745605398_57608736b2_n.jpg" width="240" height="320" alt="Chris &amp; Philippa6"></a>
+ 
+ Left to right: The family at Swainstone Rd, Chris and Philippa at Cintra park, and Chris with Charlotte bear
+
 
 #### Later years
 
