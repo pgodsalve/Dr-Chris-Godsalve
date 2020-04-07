@@ -49,7 +49,7 @@ Left to right: Schoolboy Chris, Germany - Tante Irme, Chris, Tante Lora, Lisa
 
 There were some formative events which shaped Chris’ huge sense of social justice and political awareness. Possibly the most powerful of these were his father Tom suffering a debilitating stroke in 1971 but then being declared ‘fit for work’ and social security benefits stopped. Chris became very aware of what he saw as the media demonisation of people accessing support from the government. Chris grew up around men who had been hardened by war and had enormous respect for them but considered himself a pacifist. His mother Lisa amusedly remembered switching on the TV one evening and spotting Chris in a huge crowd on a peace protest in London. She had just started to worry as he hadn’t come home for tea and hadn’t given an inkling where he was going.
 
-Chris’ father Tom sadly died very suddenly of liver cancer in 1977, having been diagnosed just 4 weeks earlier. Chris was 18 and his father’s death impacted him greatly. This was a dark time; Chris became unwell with schizoaffective disorder and spent some time in Fairmile psychiatric hospital. Lisa married Victor Cripps in 1979 after meeting him through the British Legion and acting as a translator with the German branch. Vic was instrumental in supporting Chris in his recovery and encouraging him to pursue his studies in maths and physics.
+Chris’ father Tom sadly died very suddenly of liver cancer in 1977, having been diagnosed just 4 weeks earlier. Chris was 18 and his father’s death impacted him greatly. This was a dark time; Chris became unwell with schizoaffective disorder and spent some time in Fairmile psychiatric hospital. Lisa married Victor Cripps in 1979 after meeting him through the British Legion and acting as a translator with the German branch. Chris gained a brother Bob, and nephew Steve. Vic was instrumental in supporting Chris in his recovery and encouraging him to pursue his studies in maths and physics.
 
 #### University and academic life
 
@@ -80,16 +80,19 @@ Devoted to his work at the ESSC, Chris researched weather systems, cloud physics
 
 #### Later years
 
-At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and kept the garden. During these years Chris sometimes suffered preiods of depression and alcoholism. The family often visited Lisa and Chris set her up with and showed her how to use a computer. When Lisa sadly passed away in 2012 he spent time documenting her life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.</a>
+At home, he looked after daughter Philippa, cooked, gave maths and art lessons, masterminded and assisted with many creative projects, and took her to Irish Dancing classes. He managed repairs in the house and kept the garden. During these years Chris sometimes suffered preiods of depression and alcoholism. The family often visited Lisa and Vic, and later Chris set Lisa up with and showed her how to use a computer. Vic sadly passed away in 2007, and in 2012. Chris spent much time documenting her life, as well as the lives of Tom and Vic. See 'family' pages on <a href="https://seagods.bitbucket.io/">Chris' Main website.</a>
  
+ <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746585811/in/dateposted-public/" title="IMG-4738"><img src="https://live.staticflickr.com/65535/49746585811_b388d64a4f_m.jpg" width="180" height="240" alt="IMG-4738"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746604861/in/dateposted-public/" title="IMG-4739"><img src="https://live.staticflickr.com/65535/49746604861_5df3ac02e5_m.jpg" width="240" height="156" alt="IMG-4739"></a>
 
 Chris’ illness made daily life extremely difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
 
 
 
-In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with a computer graphics project and had more he wanted to achieve.
+In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with migrating a computer graphics project to Microsoft Windows and had more he wanted to achieve. 
 
-Chris sadly passed away on 29th March 2020 during the coronavirus pandemic after a short battle with the disease. He will be missed terribly by family and friends.
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815192/in/dateposted-public/" title="IMG_4735"><img src="https://live.staticflickr.com/65535/49746815192_ef9960089b_n.jpg" width="258" height="320" alt="IMG_4735"></a>
+
+In later years his brother Bob was a huge practical and moral support for Chris and Beatrice, and always helped with taking Chris to his numerous blood tests and specialist appointments, and visiting and bringing him home from increasingly frequent stays in hospital. Chris sadly passed away on 29th March 2020 during the coronavirus pandemic after a short battle with the disease. He will be missed terribly by family and friends.
 
 
 ## Relevant charities
