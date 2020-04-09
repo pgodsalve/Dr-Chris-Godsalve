@@ -38,7 +38,7 @@ Tom left the army abruptly for a low paid job, and the family moved to a tiny ca
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745604588/in/dateposted-public/" title="Lieselotte Godsalve (later Cripps)"><img src="https://live.staticflickr.com/65535/49745604588_e4ba250cc0_n.jpg" width="226" height="320" alt="Lieselotte Godsalve (later Cripps)"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746473767/in/dateposted-public/" title="Thomas Godsalve"><img src="https://live.staticflickr.com/65535/49746473767_ecfac7e8a8_n.jpg" width="320" height="318" alt="Thomas Godsalve"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745667428/in/dateposted-public/" title="IMG_4731"><img src="https://live.staticflickr.com/65535/49745667428_184e53d687_n.jpg" width="303" height="320" alt="IMG_4731"></a>
 
-Left to right: Lisa, Tom, Lisa & Chris
+<i>Left to right: Lisa, Tom, Lisa & Chris</i>
 
 
 #### School years
@@ -47,7 +47,7 @@ Things were soon on the up after Tom became a security guard and Lisa started wo
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745604628/in/dateposted-public/" title="Schoolboy Chris"><img src="https://live.staticflickr.com/65535/49745604628_63c268be08_n.jpg" width="211" height="320" alt="Schoolboy Chris"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605638/in/dateposted-public/" title="Aunts"><img src="https://live.staticflickr.com/65535/49745605638_571af115f9_n.jpg" width="302" height="320" alt="Aunts"></a>
 
-Left to right: Schoolboy Chris, Germany - Tante Irme, Chris, Tante Lora, Lisa
+<i>Left to right: Schoolboy Chris, Germany - Tante Irme, Chris, Tante Lora, Lisa</i>
 
 
 There were some formative events which shaped Chris’ huge sense of social justice and political awareness. Possibly the most powerful of these were his father Tom suffering a debilitating stroke in 1971 but then being declared ‘fit for work’ and social security benefits stopped. Chris became very aware of what he saw as the media demonisation of people accessing support from the government. Chris grew up around men who had been hardened by war and had enormous respect for them but considered himself a pacifist. His mother Lisa amusedly remembered switching on the TV one evening and spotting Chris in a huge crowd on a peace protest in London. She had just started to worry as he hadn’t come home for tea and hadn’t given an inkling where he was going.
@@ -70,24 +70,24 @@ In the late 1980’s Chris was volunteering his time at the local council to hel
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605248/in/dateposted-public/" title="Wedding1"><img src="https://live.staticflickr.com/65535/49745605248_ffdaa6d066_n.jpg" width="320" height="240" alt="Wedding1"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746147066/in/dateposted-public/" title="Wedding5"><img src="https://live.staticflickr.com/65535/49746147066_1e7cdc1eeb_n.jpg" width="240" height="320" alt="Wedding5"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745607693/in/dateposted-public/" title="Family5"><img src="https://live.staticflickr.com/65535/49745607693_4a97c2694d_n.jpg" width="320" height="240" alt="Family5"></a>
 
-Left to right: Beatrice and Chris' Wedding, Beatrice and Chris with newborn Philippa at Old Costerton
+<i>Left to right: Beatrice and Chris' Wedding, Beatrice and Chris with newborn Philippa at Old Costerton</i>
 
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474537/in/dateposted-public/" title="Wedding2"><img src="https://live.staticflickr.com/65535/49746474537_fccb41ce07_n.jpg" width="320" height="240" alt="Wedding2"><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605513/in/dateposted-public/" title="Family7"><img src="https://live.staticflickr.com/65535/49745605513_8081bdcdd4_n.jpg" width="240" height="320" alt="Family7"></a>
  
-Left to right: David & Philippa Campbell, Beatrice, Chris and Al, family scene at Old Costerton
+<i>Left to right: David & Philippa Campbell, Beatrice, Chris and Al, family scene at Old Costerton</i>
 
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606283/in/dateposted-public/" title="Family4"><img src="https://live.staticflickr.com/65535/49745606283_af71d04ec8_n.jpg" width="250" height="190" alt="Family4"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745606218/in/dateposted-public/" title="John, Beatrice, Lisa &amp; Vic"><img src="https://live.staticflickr.com/65535/49745606218_44ea84c299_n.jpg" width="250" height="190" alt="John, Beatrice, Lisa &amp; Vic"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746146406/in/dateposted-public/" title="John Morrison"><img src="https://live.staticflickr.com/65535/49746146406_f5daf378ab_n.jpg" width="250" height="190" alt="John Morrison"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746475192/in/dateposted-public/" title="Keith"><img src="https://live.staticflickr.com/65535/49746475192_ef20f4a512_n.jpg" width="250" height="190" alt="Keith">
 
-Left to right: Times in Gorgie, Edinburgh - The Godsalve family, Beatrice, John Renton, Lisa and Vic, John Morrison with Chris and Philippa, Keith Mitchell and Philippa
+<i>Left to right: Times in Gorgie, Edinburgh - The Godsalve family, Beatrice, John Renton, Lisa and Vic, John Morrison with Chris and Philippa, Keith Mitchell and Philippa</i>
 
 
 Devoted to his work at the ESSC, Chris researched weather systems, cloud physics, atmospheric radiation, remote sensing and much more. He raised money and won grants for his research in the department. He travelled for work, including trips to Utah, USA and later Florence, Italy, where brought along his daughter's favourite teddy 'Charlotte bear' and photographed her taking in all the famous sights, much to Philippa's delight. 
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745604728/in/dateposted-public/" title="Family1"><img src="https://live.staticflickr.com/65535/49745604728_112661837c_n.jpg" width="217" height="320" alt="Family1"><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745607628/in/dateposted-public/" title="Philippa &amp; Chris5"><img src="https://live.staticflickr.com/65535/49745607628_147bb7c9c0_n.jpg" width="240" height="320" alt="Philippa &amp; Chris5"><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605398/in/dateposted-public/" title="Chris &amp; Philippa6"><img src="https://live.staticflickr.com/65535/49745605398_57608736b2_n.jpg" width="240" height="320" alt="Chris &amp; Philippa6"></a>
  
-Left to right: The family at Swainstone Rd, Chris and Philippa at local Cintra park, Chris with Charlotte bear
+<i>Left to right: The family at Swainstone Rd, Chris and Philippa at local Cintra park, Chris with Charlotte bear</i>
 
 
 Unfortunately, towards the end of his professional life, Chris’ health was mired by Ulcerative Colitis. He struggled on at work with terrible symptoms but was eventually medically retired in 2001 and was too unwell to work again after that. His disease never went into remission despite large doses of steroids and immunomodulating drugs which caused him a myriad of further health problems.
@@ -99,7 +99,7 @@ At home, he looked after daughter Philippa, cooked, gave maths and art lessons, 
  
  <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746585811/in/dateposted-public/" title="IMG-4738"><img src="https://live.staticflickr.com/65535/49746585811_b388d64a4f_m.jpg" width="180" height="240" alt="IMG-4738"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746604861/in/dateposted-public/" title="IMG-4739"><img src="https://live.staticflickr.com/65535/49746604861_5df3ac02e5_m.jpg" width="240" height="156" alt="IMG-4739"></a>
  
-Left to right: Chris with Lisa, Chris with Vic
+<i>Left to right: Chris with Lisa, Chris with Vic</i>
 
 
 Chris’ illness made daily life extremely difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
@@ -108,14 +108,14 @@ In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling inc
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815192/in/dateposted-public/" title="IMG_4735"><img src="https://live.staticflickr.com/65535/49746815192_ef9960089b_n.jpg" width="258" height="320" alt="IMG_4735"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745943338/in/dateposted-public/" title="IMG_4736"><img src="https://live.staticflickr.com/65535/49745943338_0d4725a4a6_m.jpg" width="122" height="240" alt="IMG_4736"></a>
 
-Left to right: Making the most of trips to the Royal Brompton lung disease specialist hospital - Philippa and Chris in little Venice, Chris at the hospital accomodation
+<i>Left to right: Making the most of trips to the Royal Brompton lung disease specialist hospital - Philippa and Chris in little Venice, Chris at the hospital accomodation</i>
 
 
 In later years his brother Bob was a huge practical and moral support for Chris and Beatrice, and always helped with taking Chris to his numerous blood tests and specialist appointments, and visiting and bringing him home from increasingly frequent stays in hospital. Chris sadly passed away on 29th March 2020 during the coronavirus pandemic after a short battle with the disease. He will be missed terribly by family and friends.
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746482606/in/dateposted-public/" title="IMG_3717"><img src="https://live.staticflickr.com/65535/49746482606_9a0e1c02f7_n.jpg" width="240" height="320" alt="IMG_3717"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815087/in/dateposted-public/" title="IMG_3709"><img src="https://live.staticflickr.com/65535/49746815087_c0f027c41f_n.jpg" width="320" height="240" alt="IMG_3709"></a>
 
-Left to right: Philippa & Chris, Beatrice, Chris & Bob Christmas day 2020
+<i>Left to right: Philippa & Chris, Beatrice, Chris & Bob Christmas day 2020</i>
 
 
 ## Relevant charities
