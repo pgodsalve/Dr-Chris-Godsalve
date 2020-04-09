@@ -30,7 +30,7 @@ Chris’ fields of research included heat conduction, carrier diffusion, nonline
 
 #### Early life
 
-Chris was born on 4th August 1959 in Kingston upon Hull. His parents were Thomas and Lieselotte Godsalve (later Cripps), who adopted him in the early 1960’s. Chris knew nothing of his Irish birth parents other than their names - Kavanagh and McRory.
+Chris was born on 6th August 1959 in Kingston upon Hull. His parents were Thomas and Lieselotte Godsalve (later Cripps), who adopted him in the early 1960’s. Chris knew nothing of his Irish birth parents other than their names - Kavanagh and McRory.
 
 Chris’ father Tom had previously been a staff sergeant in the Royal Berkshire regiment of the British Army, who’s long army career saw him travel across India, Burma, Cyprus and Germany. He later transferred to a role as head chef in the catering corps in the Arborfield camp. Here Chris spent his early years.
 
@@ -43,7 +43,7 @@ Left to right: Lisa, Tom, Lisa & Chris
 
 #### School years
 
-Things were soon on the up after Tom became a security guard and Lisa started work in a factory. Eventually they were able to afford a house in Southcote, Reading, where Chris went to school. Holidays included trips to stay with Lisa’s family in the Rhineland, Germany where Chris formed a close bond and admiration for his Grandpa ‘Opa Fritz’ who was a communist, a snappy dresser and appreciated Chris’ intelligence and sensitive nature. Chris attended Blessed Hugh Farringdon school, here he met lifelong friend John Devaney. They shared a love of music.
+Things were soon on the up after Tom became a security guard and Lisa started work in a factory. Eventually they were able to afford a house in Southcote, Reading, where Chris went to school. Holidays included trips to stay with Lisa’s family in the Rhineland, Germany where Chris formed a close bond and admiration for his Grandpa ‘Opa Fritz’ who was a communist, a snappy dresser and appreciated Chris’ intelligence and sensitive nature. Chris attended Blessed Hugh Farringdon school, here he met lifelong friend John Devaney. They shared a love of music and astronomy. John introduced Chris to much music, and they attended gigs of many iconic musicians together.
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745604628/in/dateposted-public/" title="Schoolboy Chris"><img src="https://live.staticflickr.com/65535/49745604628_63c268be08_n.jpg" width="211" height="320" alt="Schoolboy Chris"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605638/in/dateposted-public/" title="Aunts"><img src="https://live.staticflickr.com/65535/49745605638_571af115f9_n.jpg" width="302" height="320" alt="Aunts"></a>
 
@@ -61,7 +61,7 @@ Chris went off to university at Heriot-Watt in Edinburgh to study physics. He st
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474932/in/dateposted-public/" title="Graduation"><img src="https://live.staticflickr.com/65535/49746474932_950aa4a0c7_n.jpg" width="240" height="320" alt="Graduation"></a>
 
-Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and went to support gigs of some iconic musicians. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
+Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and enjoyed the Edinburgh music scene. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
 
 
 #### Marriage, family and professional life
@@ -90,7 +90,7 @@ Devoted to his work at the ESSC, Chris researched weather systems, cloud physics
 Left to right: The family at Swainstone Rd, Chris and Philippa at local Cintra park, Chris with Charlotte bear
 
 
-Unfortunately, towards the end of his professional life, Chris’ work was mired by Ulcerative Colitis. He struggled on with terrible symptoms but was eventually made redundant in 2001 and was too unwell to work again after that. His disease never went into remission despite large doses of steroids and immunomodulating drugs which caused him a myriad of further health problems.
+Unfortunately, towards the end of his professional life, Chris’ health was mired by Ulcerative Colitis. He struggled on at work with terrible symptoms but was eventually medically retired in 2001 and was too unwell to work again after that. His disease never went into remission despite large doses of steroids and immunomodulating drugs which caused him a myriad of further health problems.
 
 
 #### Later years
