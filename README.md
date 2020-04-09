@@ -183,3 +183,5 @@ Chris was a very special friend and a tremendous inspiration to me ever since my
    Words cannot adequately express how much I loved and admired Chris as a friend. He leaves me with a wealth of glorious and happy memories to treasure. I feel truly blessed to have known him. We may have trod very different academic paths, and we were sometimes at odds with each other when it came to the answer to ‘life, the universe, and everything’, but we were as one in our respect and affection for one another. Above all, we both shared an unflinching fiery determination to succeed in our chosen endeavours. A few weeks prior to his death, while struggling with his own mortality, he made the big breakthrough he was always working towards. Chris had finally succeeded in making his comprehensive digital research material readily accessible to the wider academic world. A fitting legacy for a brilliant, brave, and lovably eccentric man.
     
    Chris would have wanted me to finish on a lyrical note. Chris was like a shooting star in a darkening sky. Now he is a glistening tear in my transcendent eye. God bless you Chris. 
+   
+   JOHN JJ. 07-04-20.
