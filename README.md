@@ -25,7 +25,7 @@ Chris’ fields of research included heat conduction, carrier diffusion, nonline
  
 ## Playlist
 
-[embed]<iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>[/embed]
+<iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Biography
 
@@ -201,6 +201,14 @@ I think how very sympathetic he was concerning others' physical problems, trivia
 
 He had a wonderful appreciation of birds. Whenever our bird clock sings out, I will enjoy it with Chris.
 
+## Thoughts, by John Morrison
+
+Chris Godsalve was the most amazing and wonderful friend. He was instrumental in encouraging me to continue with studies in maths and physics, generally over a few beers. Without that I I’d never have continued but simply because of him I went on to PhD so I owe much of the best things in my life to him. I saw you in Edinburgh when you were very little Philippa, probably too early for you to remember. It was so funny as your dad was incredibly flexible and could imitate you biting your toenails! 
+
+In school I used to demonstrate respiration to the kids. Bicycle pump and tube used to inflate sheep's lungs.Once, things went a bit wrong. On removing the tube to allow deflation the vocal cords were activated. MMMeeehhh! A few kids looked wobbly and took off. The rest were shouting 'Again Again!'' Had a few beers with Chris that night. He loved it and wished he was there. 
+
+We are all going to miss my mad mentor Chris. One of the most amazing, intelligent and fun of people to ever walk the Earth.
+
 # Blog
 
 #### Saying goodbye - 9th April 2020
@@ -230,9 +238,11 @@ P x
 
 Until 13th May 2020 donations to relevant charities can be made in dad’s memory at <a href="http://www.memorygiving.com/drchristophergodsalve">Memory Giving page</a>
 
-#### Thoughts and memories from great friends - 11th April 2020
+#### The Blue Blazer - 11th April 2020
 
+"Jonathan came back with one story that was funny for him. He was in the Blue Blazer waiting for Chris and I. There are two doors into that pub. It's small but on a corner. Your mum knows it. At the same instant Chris and I entered through each door. Nothing hugely unusual as we used to approach from opposite directions but this time both of us were wearing brand new plaster casts over our right arms. The 3 of us saw each other immediately and burst out laughing. Way before mobile phones no one knew Chris had had an accident with a chain fence and I had similarly fractured my wrist playing basketball the night before. We discovered that the old huge plaster casts were perfectly fine support for pints of beer. Albeit a bit messy."
 
+<i>-from Johnathan Renton via John Morrison
 
 
 
