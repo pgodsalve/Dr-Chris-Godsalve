@@ -6,7 +6,7 @@
 
 <i>Photo credit: John Devaney.</i>
 
-This is a tribute page, intended to celebrate and document the life of Dr Christopher Godsalve, and to bring together some of his pages and publications. He will be remembered as a loving husband to Beatrice, father to Philippa, and as a physicist who was devoted to his work. 
+This is a tribute page, intended to celebrate and document the life of Dr Christopher Godsalve, and to bring together some of his pages and publications. He was a beloved husband to Beatrice, loving father to Philippa, a and as a physicist who was devoted to his work. 
 
 Chris’ fields of research included heat conduction, carrier diffusion, nonlinear optics, radiative transfer, spectroscopy, satellite orbits, and remote sensing. In later life Chris suffered from chronic illness, but continued with many self-directed projects in maths, physics and computing.
 
@@ -62,12 +62,12 @@ Chris went off to university at Heriot-Watt in Edinburgh to study physics. He st
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474932/in/dateposted-public/" title="Graduation"><img src="https://live.staticflickr.com/65535/49746474932_950aa4a0c7_n.jpg" width="240" height="320" alt="Graduation"></a>
 
-Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris shared an Edinburgh tenement flat with great friends. They went drinking, recorded music together and enjoyed the Edinburgh music scene. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
+Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris had great friends, and shared an Edinburgh tenement flat with some of them. They went drinking, recorded music together and enjoyed the Edinburgh music scene. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
 
 
 #### Marriage, family and professional life
 
-In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice Campbell. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh in their Gorgie flat and kept up with good friends. In 1992 they moved to Reading when Chris was offered a job at Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology. Before Chris became too unwell to travel the family enjoyed trips up to Scotland, and all had very fond memories of their stays at inlaws David and Philippa Campbell's country house 'Old Costerton'. 
+In the late 1980’s Chris was volunteering his time at the local council to help people with maths. He struck up a romantic relationship with a student of his, Beatrice Campbell. They fell in love, married in 1990 and had daughter Philippa in 1991. They lived happily in Edinburgh in their Gorgie flat and kept up with good friends. In 1992 they moved to Reading when Chris was offered a job at Reading University as a scientist in the Environmental Systems Science Centre (ESSC) now known as University of Reading Meteorology. Before Chris became too unwell to travel the family enjoyed trips to stay with David and Philippa Campbell, and all had very fond memories of stays at their country house 'Old Costerton'. 
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745605248/in/dateposted-public/" title="Wedding1"><img src="https://live.staticflickr.com/65535/49745605248_ffdaa6d066_n.jpg" width="320" height="240" alt="Wedding1"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746147066/in/dateposted-public/" title="Wedding5"><img src="https://live.staticflickr.com/65535/49746147066_1e7cdc1eeb_n.jpg" width="240" height="320" alt="Wedding5"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49745607693/in/dateposted-public/" title="Family5"><img src="https://live.staticflickr.com/65535/49745607693_4a97c2694d_n.jpg" width="320" height="240" alt="Family5"></a>
 
@@ -116,7 +116,7 @@ In later years his brother Bob was a huge practical and moral support for Chris 
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746482606/in/dateposted-public/" title="IMG_3717"><img src="https://live.staticflickr.com/65535/49746482606_9a0e1c02f7_n.jpg" width="240" height="320" alt="IMG_3717"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815087/in/dateposted-public/" title="IMG_3709"><img src="https://live.staticflickr.com/65535/49746815087_c0f027c41f_n.jpg" width="320" height="240" alt="IMG_3709"></a>
 
-<i>Left to right: Philippa & Chris, Beatrice, Chris & Bob Christmas day 2020</i>
+<i>Left to right: Philippa & Chris, Beatrice, Chris & Bob Christmas day 2019</i>
 
 
 ## Relevant charities
@@ -221,9 +221,9 @@ We are however trying to take comfort that dad was at home, he spent so much tim
 
 His memory must be celebrated, and I’d like this blog page to be in the spirit of sharing stories over a pint. All contributions are very much welcome, be it a song that reminds you of my dad, an anecdote or a photo. Though currently isolated, myself and my mum Beatrice have been overwhelmed with love and kindness from family and friends, sharing their kind wishes, support and memories of dad. I shall post these separately and will continue to update this page.
 
-‘Meanwhile, back at the ranch..’ as dad would say, we have finished the funeral preparations which as been no small feat. My mum and I have felt under immense pressure to do justice to such a brilliant person who was a deep thinker and had a vast array of interests, as well as to adequately convey what he meant to us.
+‘Meanwhile, back at the ranch..’ as dad would say, we have finished the funeral preparations which has been no small feat. My mum and I have felt under immense pressure to do justice to such a brilliant person who was a deep thinker and had a vast array of interests, as well as to adequately convey what he meant to us.
 
-We have tried to do this as best we could within the limited time window and have had to trim down our content rather ruthlessly, however the long form version of the eulogy can be found spanning the ‘biography’ and ‘words’ sections on this site, as well as the remarkable eulogy written by lifelong friend John Devaney which I feel makes for essential reading. Music choices have been difficult too, but we laughed a lot thinking up some absurd and completely inappropriate choices in keeping with dad’s sense of humour! One of these made the cut and we hope dad would have been amused at an alternative Lord’s Prayer by Siouxsie and the Banshees.
+We have tried to do this as best we could within the limited time window and have had to trim down our content rather ruthlessly, however the long form version of the eulogy is found above, as well as the remarkable eulogy written by lifelong friend John Devaney which makes for essential reading. Music choices have been difficult too, but we laughed a lot thinking up some absurd and completely inappropriate choices in keeping with dad’s sense of humour! One of these made the cut and we hope dad would have been amused at an alternative Lord’s Prayer by Siouxsie and the Banshees.
 
 The funeral will be held at 15.15 on Tuesday 14th April.
 
@@ -240,9 +240,9 @@ Until 13th May 2020 donations to relevant charities can be made in dad’s memor
 
 #### The Blue Blazer - 11th April 2020
 
-"Jonathan came back with one story that was funny for him. He was in the Blue Blazer waiting for Chris and I. There are two doors into that pub. It's small but on a corner. Your mum knows it. At the same instant Chris and I entered through each door. Nothing hugely unusual as we used to approach from opposite directions but this time both of us were wearing brand new plaster casts over our right arms. The 3 of us saw each other immediately and burst out laughing. Way before mobile phones no one knew Chris had had an accident with a chain fence and I had similarly fractured my wrist playing basketball the night before. We discovered that the old huge plaster casts were perfectly fine support for pints of beer. Albeit a bit messy."
+"John was in the Blue Blazer waiting for Chris and I. There are two doors into that pub. It's small but on a corner. Your mum knows it. At the same instant Chris and I entered through each door. Nothing hugely unusual as we used to approach from opposite directions but this time both of us were wearing brand new plaster casts over our right arms. The 3 of us saw each other immediately and burst out laughing. Way before mobile phones no one knew Chris had had an accident with a chain fence and I had similarly fractured my wrist playing basketball the night before. We discovered that the old huge plaster casts were perfectly fine support for pints of beer. Albeit a bit messy."
 
-<i>-from Johnathan Renton via John Morrison
+<i>-Johnathan Renton
 
 
 
