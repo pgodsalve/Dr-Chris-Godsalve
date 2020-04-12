@@ -25,7 +25,7 @@ Chris’ fields of research included heat conduction, carrier diffusion, nonline
  
 ## Playlist
 
-<iframe width="400" height="175" src="https://www.youtube.com/embed/videoseries?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="360" height="175" src="https://www.youtube.com/embed/videoseries?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Biography
 
