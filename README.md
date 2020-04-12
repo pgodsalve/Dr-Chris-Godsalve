@@ -215,7 +215,7 @@ We are all going to miss my mad mentor Chris. One of the most amazing, intellige
 
 It is with a heavy heart that I write this first post. We are devastated at the loss of a great man who means to much to us. There’s no words for the loss and sometimes the grief is unbearable, but there are also lot of added layers with necessary COVID-19 restrictions, which are prohibitive to the grieving process, and go against every human instinct to go, to be together, to embrace, to share stories in the pub.
 
-There must be so many families going through this and it’s heart wrenching. The deaths from C19 in the UK are vastly under-reported; at the time of writing there were 953 new C19 related deaths today, however only those people who have been tested and died in NHS hospitals are included in this grim tally, my dad will not. My thoughts are with everyone whose lives have been altered by this horrible disease, which is proving to expose huge inequalities.
+There must be so many families going through this and it’s heart wrenching. The deaths from C19 in the UK are vastly under-reported; at the time of writing there were 953 new C19 related deaths today, however only those people who have been tested and died in NHS hospitals are included in this grim tally, my dad is not. My thoughts are with everyone whose lives have been altered by this horrible disease, which is proving to expose huge inequalities.
 
 We are however trying to take comfort that dad was at home, he spent so much time in hospital throughout his life and hated being at the mercy of others. It has also been a huge comfort and an emotional journey reminiscing about dad, writing about his life, looking at his books, listening to music, digging out and laughing at old photos and hearing tributes and memories from his friends and family, albeit virtually
 
@@ -242,7 +242,7 @@ Until 13th May 2020 donations to relevant charities can be made in dad’s memor
 
 "John was in the Blue Blazer waiting for Chris and I. There are two doors into that pub. It's small but on a corner. Your mum knows it. At the same instant Chris and I entered through each door. Nothing hugely unusual as we used to approach from opposite directions but this time both of us were wearing brand new plaster casts over our right arms. The 3 of us saw each other immediately and burst out laughing. Way before mobile phones no one knew Chris had had an accident with a chain fence and I had similarly fractured my wrist playing basketball the night before. We discovered that the old huge plaster casts were perfectly fine support for pints of beer. Albeit a bit messy."
 
-<i>-Johnathan Renton
+<i>-Jonathan Renton
 
 
 
