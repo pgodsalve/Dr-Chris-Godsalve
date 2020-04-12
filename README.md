@@ -23,8 +23,9 @@ Chris’ fields of research included heat conduction, carrier diffusion, nonline
  
 <a href="https://www.youtube.com/playlist?list=PLstgcQGSENroAfXYhKG0cQNgrM4Z6ACQc">Video tutorial series 2 - Scientific Computing on Microsoft Windows
  
-<a href="https://www.youtube.com/playlist?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R">Music playlist
+## Playlist
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=PLHQcJ6DZqJEKlOGW9vdTWehqsD9oGPt9R" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Biography
 
@@ -126,7 +127,7 @@ In later years his brother Bob was a huge practical and moral support for Chris 
 
 ## More on Chris, by Beatrice
 
-hris was adopted as a baby. Slow to develop during the first months, he made up for this, teaching himself to read by the age of 3 and eagerly anticipating the visits from the mobile library. Very disorientated and withdrawn at the start of his schooling, concerned teachers were relieved to see a change in him, standing up to a bully and making friends, and occasionally sneaking past his father’s house to buy treats with his dinner money! 
+Chris was adopted as a baby. Slow to develop during the first months, he made up for this, teaching himself to read by the age of 3 and eagerly anticipating the visits from the mobile library. Very disorientated and withdrawn at the start of his schooling, concerned teachers were relieved to see a change in him, standing up to a bully and making friends, and occasionally sneaking past his father’s house to buy treats with his dinner money! 
 Despite suffering from asthma severe eczema, Chris would be outside in all weathers, working hard with his father, the skin on his hands sometimes raw. He took on the walking of his mother’s aggressive dog Cesar and often got injured in the middle of dog fights. It was hard for Chris to control him, but Chris never gave up and even entered him into the occasional dog show! 
 
 There was very little income after his father’s stroke. Clothes and accessories in fashion were too expensive for him, including and Afghan coat which he coveted. Undeterred, Chris drew on his own artistic creativity for a ‘punk’ style. Growing up fast, Chris was never too grand to help old ladies cross the street.
@@ -185,3 +186,53 @@ Chris was a very special friend and a tremendous inspiration to me ever since my
    Chris would have wanted me to finish on a lyrical note. Chris was like a shooting star in a darkening sky. Now he is a glistening tear in my transcendent eye. God bless you Chris. 
    
    JOHN JJ. 07-04-20.
+
+## Thoughts, by Bob
+
+As for me, I couldn't have had a better brother who carried himself through all his problems with great dignity. We had many conversations on a Sunday about science, films, politics, the Royal Family etc. We didn't always agree but over the many years we never argued. I wish him well wherever he's gone, and look forward to many debates in the future.
+
+## Thoughts, by Philippa Campbell
+
+(Written on an Einstein birthday card to Beatrice and Philippa with the message "have a relatively happy birthday")
+
+Chris would have appreciated it... you shared a special subtle humour and we remember his voice, so relaxes and light. We remember all the happy times when you both came to Costerton, and the times we stayed with you at number 42. Only once did Chris opt out of anything and we still laugh about it; seeing 'gone with the wind' again in Lothian road, Chris said he "couldn't handle it" with a little shudder! 
+
+I think how very sympathetic he was concerning others' physical problems, trivial compared with his own, which he lived with most of his life. He never seemed to complain. We think of easier days when he was well enough to join us on an expedition by car in the deepest Berkshire countryside. We owe those experiences to you both, visiting those Thamesside houses like Downton Abbey. Lots of good photos of Sunny occasions, with Chris wearing his signature summer hats.
+
+He had a wonderful appreciation of birds. Whenever our bird clock sings out, I will enjoy it with Chris.
+
+# Blog
+
+#### Saying goodbye - 9th April 2020
+
+It is with a heavy heart that I write this first post. We are devastated at the loss of a great man who means to much to us. There’s no words for the loss and sometimes the grief is unbearable, but there are also lot of added layers with necessary COVID-19 restrictions, which are prohibitive to the grieving process, and go against every human instinct to go, to be together, to embrace, to share stories in the pub.
+
+There must be so many families going through this and it’s heart wrenching. The deaths from C19 in the UK are vastly under-reported; at the time of writing there were 953 new C19 related deaths today, however only those people who have been tested and died in NHS hospitals are included in this grim tally, my dad will not. My thoughts are with everyone whose lives have been altered by this horrible disease, which is proving to expose huge inequalities.
+
+We are however trying to take comfort that dad was at home, he spent so much time in hospital throughout his life and hated being at the mercy of others. It has also been a huge comfort and an emotional journey reminiscing about dad, writing about his life, looking at his books, listening to music, digging out and laughing at old photos and hearing tributes and memories from his friends and family, albeit virtually
+
+His memory must be celebrated, and I’d like this blog page to be in the spirit of sharing stories over a pint. All contributions are very much welcome, be it a song that reminds you of my dad, an anecdote or a photo. Though currently isolated, myself and my mum Beatrice have been overwhelmed with love and kindness from family and friends, sharing their kind wishes, support and memories of dad. I shall post these separately and will continue to update this page.
+
+‘Meanwhile, back at the ranch..’ as dad would say, we have finished the funeral preparations which as been no small feat. My mum and I have felt under immense pressure to do justice to such a brilliant person who was a deep thinker and had a vast array of interests, as well as to adequately convey what he meant to us.
+
+We have tried to do this as best we could within the limited time window and have had to trim down our content rather ruthlessly, however the long form version of the eulogy can be found spanning the ‘biography’ and ‘words’ sections on this site, as well as the remarkable eulogy written by lifelong friend John Devaney which I feel makes for essential reading. Music choices have been difficult too, but we laughed a lot thinking up some absurd and completely inappropriate choices in keeping with dad’s sense of humour! One of these made the cut and we hope dad would have been amused at an alternative Lord’s Prayer by Siouxsie and the Banshees.
+
+The funeral will be held at 15.15 on Tuesday 14th April.
+
+This will be a small gathering restricted to family only due to C19 restrictions, however the webcast can be accessed using the link below.
+
+Love and warmth,
+
+P x
+
+<a href="http://www.obitus.com">Funeral webcast</a> username: reading6974 password: 633316
+
+
+Until 13th May 2020 donations to relevant charities can be made in dad’s memory at <a href="http://www.memorygiving.com/drchristophergodsalve">Memory Giving page</a>
+
+#### Thoughts and memories from great friends - 11th April 2020
+
+
+
+
+
