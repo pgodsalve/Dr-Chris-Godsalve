@@ -153,7 +153,7 @@ During Chris’ busy life he loved to read and surrounded himself with books. An
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746146571/in/dateposted-public/" title="Wedding guests"><img src="https://live.staticflickr.com/65535/49746146571_0bc62efed3_n.jpg" width="320" height="240" alt="Wedding guests"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746146321/in/dateposted-public/" title="Chris and Beatrice at Gorgie"><img src="https://live.staticflickr.com/65535/49746146321_cfa207cabb_n.jpg" width="320" height="240" alt="Chris and Beatrice at Gorgie">
 
  
-## Thoughts by daughter, Philippa
+## Thoughts, by Philippa
 
 Dad’s life was often afflicted with illness and hardship, but he always remained incredibly positive and didn’t dwell on his suffering. He was admirable in his stoicism and had huge empathy for others who were unwell.
 
@@ -214,6 +214,13 @@ Chris was always someone I have looked up too and later in life when I went to m
 It’s gone now but Chris found it working probably only by sense of smell.  Years after his trip when myself and Joe Crayston arrived there in 1996 I asked many of the indigenous Mormons where it was. We were met with frowns rather than the traditional bright smiles and they walked on by. Joe didn’t believe me over the legend but we pursued and finally found it! Chris didn’t say how completely wild the place was. They had genuine cowboys and girls with guns in holsters line dancing getting very drunk. I can imagine Chris joining in.   
 We are all going to miss my mad mentor Chris. One of the most amazing, intelligent and fun of people to ever walk the Earth.
 
+## Thoughts by Palli
+
+I knew Chris through my relationship with Philippa. Meeting the parents of a loved-one for the first time can be a daunting experience, but Chris and Beatrice immediately put me at ease. I was welcomed with open arms and they showed me great kindness from the very beginning. Being from Iceland, I was taken aback by Chris’ knowledge of the Icelandic sagas, and his profound interest in the literature of my country and me as an individual cemented an enduring friendship. 
+
+Chris and Beatrice, an unsung comedy double act with compassion and empathy to match their gentle humour. One memory that comes to mind took place at the home of Chris’ mum Liese. Beatrice was attempting to explain the concept of Lent, whereupon Chris stood shaking his head in bewilderment with perfect comedic timing. We always giggled our way through Sunday dinners and yet Chris instinctively knew when I was in need of a sympathetic ear, being geographically apart from my own family. My abiding memory from those family gatherings is of a house filled with laughter.
+
+His humility belied an intellectual prowess and he never lost his youthful curiosity. Never one to complain, Chris bore numerous illnesses stoically. A true survivor until sadly an unexpected adversary took him from us before his time. My deepest condolences to the family.
 
 # Blog
 
