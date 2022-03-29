@@ -155,9 +155,9 @@ During Chris’ busy life he loved to read and surrounded himself with books. An
  
 ## Thoughts, by Philippa
 
-Dad’s life was often afflicted with illness and hardship, but he always remained incredibly positive and didn’t dwell on his suffering. He was admirable in his stoicism and had huge empathy for others who were unwell.
+Dad’s life was often afflicted with illness and hardship but he didn’t dwell on his suffering. He was admirable in his stoicism and had huge empathy for others who were unwell.
 
-Dad was kind and gentle in nature and had a huge belief in the potential of others, he assumed intellect equal to his own of anyone he spoke to. He was a patient and passionate teacher and had time for everyone, from teaching PhD physics, to teaching maths and chess to friends in the local pub, to possibly the most praiseworthy, teaching advanced algebra to a yawning and fidgeting teenage daughter. Many of his later projects included painstakingly writing and recording tutorials to enable others to replicate his methods.
+Dad was kind and gentle in nature and had a huge belief in the potential of others, he assumed intellect equal to his own of anyone he spoke to. He was a patient and passionate teacher and had time for everyone, from teaching PhD physics, to teaching maths and chess to friends in the local pub, to possibly the most praiseworthy, teaching advanced algebra to a yawning and fidgeting teenage daughter. Many of his later projects included painstakingly writing and recording tutorials to enable others to learn and replicate his methods.
 
 As well as his affinity for the cosmos and physical and theoretical worlds, dad had many interests spanning punk rock, classical literature, philosophy, theology, art, politics and history. He had a fantastically good memory when it came to global historical events and could delve into and analyse the historic and geopolitical context in a way which brought them to life. Many will remember my Dad’s wicked, dark and absurdist sense of humour. He was sharp in wit, enjoyed obscure references to film and literature and had many running in-jokes with close friends and family.
 
@@ -222,17 +222,15 @@ Chris and Beatrice, an unsung comedy double act with compassion and empathy to m
 
 His humility belied an intellectual prowess and he never lost his youthful curiosity. Never one to complain, Chris bore numerous illnesses stoically. A true survivor until sadly an unexpected adversary took him from us before his time. My deepest condolences to the family.
 
-# Blog
+## Preparing to say goodbye -
 
-#### Saying goodbye - 9th April 2020
+ We are devastated at the loss of a great man who means to much to us. There’s no words for the loss and sometimes the grief is unbearable, but there are also lot of added layers with necessary COVID-19 restrictions, which are prohibitive to the grieving process, and go against every human instinct to go, to be together, to embrace, to share stories in the pub.
 
-It is with a heavy heart that I write this first post. We are devastated at the loss of a great man who means to much to us. There’s no words for the loss and sometimes the grief is unbearable, but there are also lot of added layers with necessary COVID-19 restrictions, which are prohibitive to the grieving process, and go against every human instinct to go, to be together, to embrace, to share stories in the pub.
+There must be so many families going through this and it’s heart wrenching. The deaths from C19 in the UK are vastly under-reported; at the time of writing there were 953 new C19 related deaths today, however only those people who have been tested and died in NHS hospitals are included in this grim tally, my dad is not. My thoughts are with everyone whose lives have been altered by this horrible virus, which is proving to expose huge inequalities.
 
-There must be so many families going through this and it’s heart wrenching. The deaths from C19 in the UK are vastly under-reported; at the time of writing there were 953 new C19 related deaths today, however only those people who have been tested and died in NHS hospitals are included in this grim tally, my dad is not. My thoughts are with everyone whose lives have been altered by this horrible disease, which is proving to expose huge inequalities.
+We are however trying to take comfort that dad was at home; he spent so much time in hospital throughout his life and hated being at the mercy of others. It has also been a huge comfort and an emotional journey reminiscing about dad, writing about his life, looking at his books, listening to music, digging out and laughing at old photos and hearing tributes and memories from his friends and family, albeit virtually
 
-We are however trying to take comfort that dad was at home, he spent so much time in hospital throughout his life and hated being at the mercy of others. It has also been a huge comfort and an emotional journey reminiscing about dad, writing about his life, looking at his books, listening to music, digging out and laughing at old photos and hearing tributes and memories from his friends and family, albeit virtually
-
-His memory must be celebrated, and I’d like this blog page to be in the spirit of sharing stories over a pint. All contributions are very much welcome, be it a song that reminds you of my dad, an anecdote or a photo. Though currently isolated, myself and my mum Beatrice have been overwhelmed with love and kindness from family and friends, sharing their kind wishes, support and memories of dad. I shall post these separately and will continue to update this page.
+His memory must be celebrated, and it's been such a pleasure to read contributions from old friends much in the spirit of sharing stories over a pint. Though currently isolated, myself and my mum Beatrice have been overwhelmed with love and kindness from family and friends, sharing their kind wishes, support and memories of dad. 
 
 ‘Meanwhile, back at the ranch..’ as dad would say, we have finished the funeral preparations which has been no small feat. My mum and I have felt under immense pressure to do justice to such a brilliant person who was a deep thinker and had a vast array of interests, as well as to adequately convey what he meant to us.
 
@@ -251,7 +249,7 @@ P x
 
 Until 13th May 2020 donations to relevant charities can be made in dad’s memory at <a href="http://www.memorygiving.com/drchristophergodsalve">Memory Giving page</a>
 
-#### The Blue Blazer - 11th April 2020
+## The Blue Blazer - 11th April 2020
 
 I was in the Blue Blazer waiting for Chris and John. There are two doors into that pub. It’s small but on a corner. Your mum knows it. At the same instant they entered through each door. Nothing hugely unusual as they used to approach from opposite directions but this time both were wearing brand new plaster casts over their right arms. The 3 of us saw each other immediately and burst out laughing. Way before mobile phones no one knew Chris had had an accident with a chain fence and John had similarly fractured his wrist playing basketball the night before. We discovered that the old huge plaster casts were perfectly fine support for pints of beer. Albeit a bit messy.
 
