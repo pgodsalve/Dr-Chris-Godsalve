@@ -222,7 +222,7 @@ Chris and Beatrice, an unsung comedy double act with compassion and empathy to m
 
 His humility belied an intellectual prowess and he never lost his youthful curiosity. Never one to complain, Chris bore numerous illnesses stoically. A true survivor until sadly an unexpected adversary took him from us before his time. My deepest condolences to the family.
 
-## Preparing to say goodbye -
+## Preparing to say goodbye 
 
  We are devastated at the loss of a great man who means to much to us. There’s no words for the loss and sometimes the grief is unbearable, but there are also lot of added layers with necessary COVID-19 restrictions, which are prohibitive to the grieving process, and go against every human instinct to go, to be together, to embrace, to share stories in the pub.
 
@@ -253,7 +253,7 @@ Until 13th May 2020 donations to relevant charities can be made in dad’s memor
 
 I was in the Blue Blazer waiting for Chris and John. There are two doors into that pub. It’s small but on a corner. Your mum knows it. At the same instant they entered through each door. Nothing hugely unusual as they used to approach from opposite directions but this time both were wearing brand new plaster casts over their right arms. The 3 of us saw each other immediately and burst out laughing. Way before mobile phones no one knew Chris had had an accident with a chain fence and John had similarly fractured his wrist playing basketball the night before. We discovered that the old huge plaster casts were perfectly fine support for pints of beer. Albeit a bit messy.
 
-<i>-Jonathan Renton
+ <i>-Jonathan Renton</i>
 
 
 ## John J Photo Tribute 15th April 2020
