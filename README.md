@@ -33,7 +33,7 @@ Chris’ fields of research included heat conduction, carrier diffusion, nonline
 
 Chris was born on 6th August 1959 in Kingston upon Hull. His parents were Thomas and Lieselotte Godsalve (later Cripps), who adopted him in the early 1960’s. Chris knew nothing of his Irish birth parents other than their names - Kavanagh and McRory.
 
-Chris’ father Tom had previously been a staff sergeant in the Royal Berkshire regiment of the British Army, who’s long army career saw him travel across India, Burma, Cyprus and Germany. He later transferred to a role as head chef in the catering corps in the Arborfield camp. Here Chris spent his early years.
+Chris’ father Tom had previously been a staff sergeant in the Royal Berkshire regiment of the British Army, who’s long army career saw him travel across India, (then) Burma, Cyprus and Germany. He later transferred to a role as head chef in the catering corps in the Arborfield camp. Here Chris spent his early years.
 
 Tom left the army abruptly for a low paid job, and the family moved to a tiny caravan. Life in the caravan was hard, they had very little money and the pipes often froze in cold weather preventing access to running water.
 
@@ -62,7 +62,7 @@ Chris went off to university at Heriot-Watt in Edinburgh to study physics. He st
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746474932/in/dateposted-public/" title="Graduation"><img src="https://live.staticflickr.com/65535/49746474932_950aa4a0c7_n.jpg" width="240" height="320" alt="Graduation"></a>
 
-Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank to name a few. It wasn’t all work and no play; Chris had great friends, and shared an Edinburgh tenement flat with some of them. They went drinking, recorded music together and enjoyed the Edinburgh music scene. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
+Throughout his studies Chris worked hard to support himself financially and had various jobs as a labourer, a warehouse operative and making tea in a bank. It wasn’t all work and no play; Chris had great friends, and shared an Edinburgh tenement flat with some of them. They went drinking, recorded music together and enjoyed the Edinburgh music scene. After gaining his PhD Chris stayed on at Heriot-Watt for a further 2 years working in research in the physics department.
 
 
 #### Marriage, family and professional life
@@ -103,7 +103,7 @@ At home, he looked after daughter Philippa, cooked, gave maths and art lessons, 
 <i>Left to right: Chris with Lisa, Chris with Vic</i>
 
 
-Chris’ illness made daily life extremely difficult, despite this he continued to apply his commendable work ethic to develop numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
+Chris’ illness made daily life extremely difficult, despite this he continued working on numerous projects including publishing a ‘maths school’, computer programming including graphics software, and further research into environmental physics. He kept his foot in the academic world writing papers and was in touch with Nobel prize winning scientists about his work.
 
 In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling increasingly short of breath for some time. He had lost a significant amount of lung function. The prognosis was not good, but with the help of home oxygen Chris was able to retain independence and continue his work. Chris had a recent breakthrough with migrating a computer graphics project to Microsoft Windows and had more he wanted to achieve. 
 
@@ -112,7 +112,7 @@ In 2012 Chris was diagnosed with idiopathic pulmonary fibrosis after feeling inc
 <i>Left to right: Making the most of trips to the Royal Brompton lung disease specialist hospital - Philippa and Chris in little Venice, Chris at the hospital accomodation</i>
 
 
-In later years his brother Bob was a huge practical and moral support for Chris and Beatrice, and always helped with taking Chris to his numerous blood tests and specialist appointments, and visiting and bringing him home from increasingly frequent stays in hospital. Chris sadly passed away on 29th March 2020 during the coronavirus pandemic after a short battle with the disease. He will be missed terribly by family and friends.
+In later years his brother Bob was a huge practical and moral support for Chris and Beatrice, and always helped with taking Chris to his numerous blood tests and specialist appointments, and visiting and bringing him home from increasingly frequent stays in hospital. Chris sadly passed away on 29th March 2020 during the coronavirus pandemic shortly after contracting the illness. He will be missed terribly by family and friends.
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746482606/in/dateposted-public/" title="IMG_3717"><img src="https://live.staticflickr.com/65535/49746482606_9a0e1c02f7_n.jpg" width="240" height="320" alt="IMG_3717"></a><a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746815087/in/dateposted-public/" title="IMG_3709"><img src="https://live.staticflickr.com/65535/49746815087_c0f027c41f_n.jpg" width="320" height="240" alt="IMG_3709"></a>
 
@@ -159,11 +159,11 @@ Dad’s life was often afflicted with illness and hardship but he didn’t dwell
 
 Dad was kind and gentle in nature and had a huge belief in the potential of others, he assumed intellect equal to his own of anyone he spoke to. He was a patient and passionate teacher and had time for everyone, from teaching PhD physics, to teaching maths and chess to friends in the local pub, to possibly the most praiseworthy, teaching advanced algebra to a yawning and fidgeting teenage daughter. Many of his later projects included painstakingly writing and recording tutorials to enable others to learn and replicate his methods.
 
-As well as his affinity for the cosmos and physical and theoretical worlds, dad had many interests spanning punk rock, classical literature, philosophy, theology, art, politics and history. He had a fantastically good memory when it came to global historical events and could delve into and analyse the historic and geopolitical context in a way which brought them to life. Many will remember my Dad’s wicked, dark and absurdist sense of humour. He was sharp in wit, enjoyed obscure references to film and literature and had many running in-jokes with close friends and family.
+As well as his affinity for the cosmos and physical and theoretical worlds, dad had many interests spanning punk rock, classical literature, philosophy, theology, art, politics and history. He had a fantastically good memory when it came to global historical events and could delve into and analyse the historic and geopolitical context. Many will remember my Dad’s wicked, dark and absurdist sense of humour. He was sharp in wit, enjoyed obscure references to film and literature and had many running jokes with close friends and family.
 
 I owe much of my taste in music to my dad’s genre spanning catalogue and can credit him for introducing me to Herodotus Histories, Icelandic Sagas, the Dadaist and Surrealist art movements and much more. Some of my fondest memories of dad are him reading to me as a child, something he did devotedly from Beatrix Potter, C.S. Lewis, Tolkien to later, Mark Twain and the adventures of Tom Sawyer, always with voices and accents to bring the stories to life.
 
-Early memories of observing the night sky with binoculars, constructing home made pinhole eclipse projectors and listening to and identifying birdsong with dad sparked my interest in science and the natural world. Some of his abstract paintings inspired my own art and hang in my home today. My dad meant the world to me and shaped me enormously, he was an inspiration, a limitless source of fascinating conversation and a wonderful support. I love him dearly and will miss him very much indeed.
+Early memories of observing the night sky with binoculars, constructing home made pinhole eclipse projectors and listening to and identifying birdsong with dad sparked my interest in science and the natural world. My dad meant the world to me and shaped me enormously, he was an inspiration, a limitless source of fun and playfulness, fascinating conversation and a wonderful support. I love him dearly and will miss him very much indeed.
 
 <a data-flickr-embed="true" href="https://www.flickr.com/photos/184865355@N03/49746475982/in/dateposted-public/" title="Chris &amp; Philippa1"><img src="https://live.staticflickr.com/65535/49746475982_45c0dc1185_n.jpg" width="240" height="320" alt="Chris &amp; Philippa1"></a>
 
